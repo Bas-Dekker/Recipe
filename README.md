@@ -1,3 +1,5 @@
+/_AANPASSING _/
+
 Ingredients:
 2 litre veg stock
 5.5 tbsp tamari
@@ -13,7 +15,6 @@ Toppings:
 1 large carrot
 200 g most of 1 pack of bean sprouts
 
- 
 Instructions:
 To prepare the broth, first put the veg stock and 2.5 tbsp tamari together with the grated ginger, the juice of 1 lime and 1 tbsp of maple syrup into a suitable sized pan and bring to the boil.
 Tear/chop the mushrooms into bite-sized pieces.
